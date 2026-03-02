@@ -1,9 +1,25 @@
 # Lets-Go-Get-Pizza
 
-yuh
+HALLO HALLO HALLO PONYTOWN!!! WAVES
+![d9a932daca5e2a205a20bf063587e1b9](https://github.com/user-attachments/assets/9025f7d9-1c9e-449a-8ce0-defca38bcf85)
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1iondd8jrc1ighp8bb7ej7fi4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=0093ad&bar_color_cover=false">
-  </a>
-</p>
+i am the Name Collector. i hav so many names bcs it's fun !! but das besides the point !!!!
+
+UH
+
+oh yeah. this tag is for like- when im feeling silly or even agere (sfw)!!
+
+BUT HERE'S VERY IMPORTANT INFO PLS
+
+***I AM AN ADULT***
+
+I do ***NOT*** have this to be weird with kids (not because ive had those accusations b4 but just in case /gen) this is genuinely just me attempting to allow myself to have some whimsy back in my life and try and just have better coping mechanisms that isn't self destructive.
+
+
+
+vvv extra ofa da info:
+
+
+***DNI:***
+- If you talk about adult topics! (more specifically s–xually explicit topics/jokes & politics)
+- If you engage in ragebait, drama, or bullying!
