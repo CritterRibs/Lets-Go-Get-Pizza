@@ -1,4 +1,4 @@
-# Lets-Go-Get-Pizza
+# Not Before We Get Pizza,
 
 HALLO HALLO HALLO PONYTOWN!!! WAVES
 ![d9a932daca5e2a205a20bf063587e1b9](https://github.com/user-attachments/assets/9025f7d9-1c9e-449a-8ce0-defca38bcf85)
@@ -28,7 +28,7 @@ unfortunately fo da both of us i am sensitive sometimes but im also super slow s
 vvv extra ofa da info:
 
 
-***DNI:***
+# ***DNI:***
 - If you talk about adult topics! (more specifically s–xually explicit topics/jokes & politics)
 - If you engage in ragebait, drama, or bullying!
 - Anyone under 15!
