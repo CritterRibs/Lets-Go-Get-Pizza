@@ -35,7 +35,7 @@ vvv extra ofa da info:
 - ***E-RP***
 
 UHM
-i don't like profanity tbh - it makes me super uncomfy.
+i don't like profanity tbh - it makes me super uncomfy. I have it filtered out so if I don't resp to your message it's because it was censored!
 i also tend to tire myself out a lot so i may shut down often but im trying!!
 i still get nervous but !! alas we ball
 i also tend to make myself uncomfortable and im prone to being like,,, super upset/irritated (im sorry and working on it!)
